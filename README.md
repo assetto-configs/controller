@@ -1,1 +1,1 @@
-[Apply controller settings](https://acstuff.ru/s/rs2eV_)
+[Apply controller settings](https://acstuff.ru/s/RiNd5e)
